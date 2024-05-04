@@ -1,4 +1,4 @@
 # RainV
 
 
-Preparense banda porque verán los códigos más weones del misisipi
+Preparense banda porque verán los códigos más éxoticos del misisipi
